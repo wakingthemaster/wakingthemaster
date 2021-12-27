@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @wakingthemaster
+- 👀 I’m interested in creating cryptocurrencies
+- 📫 How to reach me konabusiness@protonmail.com
+- I can market the products but I need technical help
